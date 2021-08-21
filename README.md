@@ -1,1 +1,0 @@
-# FinSchool-NGPF
